@@ -5,7 +5,7 @@
 - 📫 How to reach me ... hypergalactic atm due to recent job loss, please call again soon
 - 😄 Pronouns: ... don't exist in my realm - but enjoy your own. 
 - ⚡ Fun fact: ... "If you are not improving humanity you are hindering" 
-- 🖤 RL ... old school gothic hippy with a love for fungus, weed, edible things and life.
+- 🖤 RL ... old school gothic/Punk/Hippy with a love for fungus, weed, edible things and life.
 - 💙🖤🤍... Port Adelaide football club member.
 - 💙🖤🤍... 🐶 is also a Port pet member.
 - 🇦🇺 unvaxed patriot standing up for freedom of choice and expression.
